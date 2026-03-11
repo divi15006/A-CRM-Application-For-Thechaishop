@@ -1,1 +1,6 @@
-# A-CRM-Application-For-Thechaishop
+# A-CRM-Application-For-Thechaishop&co
+MADHUMITHA.A
+DIVYA.S
+DEVADHARSHINI.D
+DHATCHAYANI.K
+DHARSHINI.M
